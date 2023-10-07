@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @lydia, an IT PROFESSIONAL
